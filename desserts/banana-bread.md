@@ -9,7 +9,7 @@
 - 1/2 tsp baking soda
 - 1 tsp baking powder
 - pinch salt
-- 1/4 cup nuts (we like pecans)
+- 1/4 cup nuts (e.g. pecans)
 
 ## Instructions
 - Beat the eggs, then cream with the butter and sugar
